@@ -1,4 +1,4 @@
-# 
+# آمن Smallpdf Desktop قوالب لـ Mac OS | ذكي Smallpdf Desktop قوالب لـ PC Windows. مع إدارة العملاء و الإيداع الإلكتروني للIRS — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
